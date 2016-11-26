@@ -5,17 +5,17 @@ du web.
 
 ##Expérience professionnelle
 
-* Restauration et hotellerie
-* Usine
-* Animateur de séjours adaptés auprès de personnes en situation de handicap
 * Depuis mai 2015 : e-commerçant
+* Animateur de séjours adaptés auprès de personnes en situation de handicap
+* Usine
+* Restauration et hotellerie
 
 ##Formations
 
-* 2 années de Droit
-* 1 année (ou presque...) en Langues
-* DE Moniteur-éducateur
 * Master 1 Neuropsychologie
+* DE Moniteur-éducateur
+* 1 année (ou presque...) en Langues
+* 2 années de Droit
 
 ##Pourquoi Simplonline ?
 
